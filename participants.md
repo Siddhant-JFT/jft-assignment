@@ -1,5 +1,4 @@
 Sajal
 Vivek
+Gurunoor Singh
 Siddhant Tyagi
-Aayush Kumar Gupta
-
